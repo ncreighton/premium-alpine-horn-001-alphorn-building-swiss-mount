@@ -1,0 +1,2 @@
+# premium-alpine-horn-001-alphorn-building-swiss-mount
+Ever dreamed of crafting your own alphorn but felt overwhelmed by the lack of clear, woodworking-friendly guides? This isn't just another PDF—it's a full craft lab that walks you from raw timber to resonant tones.  This lab solves the problem of inaccessible or overly complex alphorn building instructions by providing a structured, beginner-friendl
